@@ -1,2 +1,1 @@
 # maxway
-maxway loyiha ishi
